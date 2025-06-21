@@ -61,6 +61,25 @@ author: Bonus Rehberi
   </tr>
 </table>
 
+<table>
+  <tr>
+    <th>Betturkey</th>
+    <th>Xslot</th>
+  </tr>
+  <tr>
+    <td><a href="https://cutt.ly/NrEughv5" target="_blank"><img src="https://resmim.net/cdn/2025/06/21/TxCEoF.jpg" width="250" /></a></td>
+    <td><a href="https://cutt.ly/crEuEsEx" target="_blank"><img src="https://resmim.net/cdn/2025/06/21/TxCkZC.jpg" width="250" /></a></td>
+  </tr>
+  <tr>
+    <td>1000₺ Deneme Bonusu & 1000 Free Spin</td>
+    <td>1000₺ Deneme Bonusu & 1000 Free Spin</td>
+  </tr>
+  <tr>
+    <td><a href="https://cutt.ly/NrEughv5" target="_blank"><img src="https://img.shields.io/badge/Bonusu_Al-Hemen_Tıkla-FF4500?style=for-the-badge&logoColor=white" /></a></td>
+    <td><a href="https://cutt.ly/crEuEsEx" target="_blank"><img src="https://img.shields.io/badge/Bonusu_Al-Hemen_Tıkla-1E90FF?style=for-the-badge&logoColor=white" /></a></td>
+  </tr>
+</table>
+
 <h2>📲 Bonus Telegram Kanalı</h2>
 <h3>Telegram kanalımızdan da bizi takip edebilirsiniz</h3>
 <p>
